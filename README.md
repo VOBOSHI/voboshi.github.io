@@ -1,3 +1,1 @@
-## VOBOSHI
-
-We out there.
+You out there, we in here...
